@@ -1,10 +1,5 @@
-- 👋 Hi, I’m @Javyynn
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
-<!---
-Javyynn/Javyynn is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- 👋 Rafael "Javyynn" B.
+- 👀 CEO of AzureMC (Azure Corporation)
+- 🌱 Former professional Trackmania player
+- 💞️ Looking for an organization as Valorant's player
+- 📫 PM me on Twitter (@Javyynn) or Discord: Javyynn#2409

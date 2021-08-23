@@ -1,5 +1,5 @@
 - 👋 Rafael "Javyynn" B.
 - 👀 CEO of AzureMC (Azure Corporation)
 - 🌱 Former professional Trackmania player
-- 💞️ Looking for an organization as Valorant's player
+- 💞️ Official Discord of AzureMC https://dsc.gg/azuremc
 - 📫 PM me on Twitter (@Javyynn) or Discord: Javyynn#2409

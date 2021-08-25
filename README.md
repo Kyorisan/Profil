@@ -1,5 +1,5 @@
-- 👋 Rafael "Javyynn" B.
+- 👋 Rafael "Jehllal" B.
 - 👀 CEO of AzureMC (Azure Corporation)
 - 🌱 Former professional Trackmania player
 - 💞️ Official Discord of AzureMC https://dsc.gg/azuremc
-- 📫 PM me on Twitter (@Javyynn) or Discord: Javyynn#2409
+- 📫 PM me on Twitter (@Rafael_Jehllal) or Discord: Javyynn#2409

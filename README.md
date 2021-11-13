@@ -1,5 +1,5 @@
-- 👋 Rafael "KojiroNL" B.
+- 👋 Rafael "Kyorisan" B.
 - 👀 CEO of AzureMC (Azure Corporation)
 - 🌱 Former professional Trackmania player
 - 💞️ Official Discord of AzureMC https://dsc.gg/azuremc
-- 📫 PM me on Twitter (@Rafael_KojiroNL) or Discord: KojiroNL#2409
+- 📫 PM me on Twitter (@Rafael_Kyorisan) or Discord: Kyorisan#2409

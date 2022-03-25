@@ -1,5 +1,5 @@
 - 👋 Rafael "Kyorisan" B.
-- 👀 CEO of AzureMC (Azure Corporation)
-- 🌱 Former professional Trackmania player
-- 💞️ Official Discord of AzureMC https://dsc.gg/azuremc
+- 👀 18 years old
+- 🌱 Former professional Trackmania player (orKsGP / Loud)
+- 💞️ Looking to represent an organization as content creator
 - 📫 PM me on Twitter (@Rafael_Kyorisan) or Discord: Kyorisan#2409

@@ -1,5 +1,3 @@
 - 👋 Rafael "Kyorisan" B.
-- 👀 18 years old
+- 👀 20 years old
 - 🌱 Former professional Trackmania player (orKsGP / Loud)
-- 💞️ Looking to represent an organization as content creator
-- 📫 PM me on Twitter (@Rafael_Kyorisan) or Discord: Kyorisan#2409
